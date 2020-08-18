@@ -12,9 +12,11 @@
   * Avatar the Last Airbender
   * Adventure Time
   * Steven Universe
+  
 - 📫 How to reach me: 
-* Texting is the fastest way Ill get back to you
-* Cassandraheil1998@gmail.com
+ * Texting is the fastest way Ill get back to you
+ * Cassandraheil1998@gmail.com
+
 - ⚡ Fun fact: ...
-* I am an amature ukulele player! 🎵
+ * I am an amature ukulele player! 🎵
 
