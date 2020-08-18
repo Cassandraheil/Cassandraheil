@@ -1,16 +1,20 @@
-### Hi there 👋
+### Hey Friend! 👋
 
-<!--
-**Cassandraheil/Cassandraheil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+##Cassandra Heil here!
 
-Here are some ideas to get you started:
+* [My Website](https://cassandraheil.github.io/Portfolio/)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
+- 🔭 I’m currently job hunting, if you know anyone hiring feel free to connect with me 
+* [My Resume] (https://docs.google.com/document/d/1_MrSLcZXvkkSLI7hSz1e7cRnJU-4QXVVDaudXpB8zyc/edit?usp=sharing)
+
+- 💬 Ask me about...
+  *legend of Zelda
+  *Avatar the Last Airbender
+  *Adventure Time
+  *Steven Universe
+- 📫 How to reach me: 
+*Texting is the fastest way Ill get back to you
+*Cassandraheil1998@gmail.com
 - ⚡ Fun fact: ...
--->
+* I am an amature ukulele player! 🎵
+
