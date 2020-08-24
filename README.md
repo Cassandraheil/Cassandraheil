@@ -17,8 +17,11 @@
                   <br>... and we can have a good conversation for days
   
  - 📫 How to reach me: 
-   * Texting is the fastest way I'll get back to you
+   * 717-466-1328
+     * Texting is the fastest way I'll get back to you
    * Cassandraheil1998@gmail.com
+   * [LinkedIn](https://www.linkedin.com/in/cassandra-heil-5204b5197/)
+   * [Resume](https://docs.google.com/document/d/1_MrSLcZXvkkSLI7hSz1e7cRnJU-4QXVVDaudXpB8zyc/edit?usp=sharing)
 
 - ⚡ Fun fact: ...
   * I am an amature ukulele player! 🎵
