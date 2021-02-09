@@ -10,6 +10,7 @@
   * [My Resume](https://docs.google.com/document/d/1_MrSLcZXvkkSLI7hSz1e7cRnJU-4QXVVDaudXpB8zyc/edit?usp=sharing)
 
 - 💬 Ask me about...
+  * She-Ra
   * legend of Zelda
   * Avatar the Last Airbender
   * Adventure Time
